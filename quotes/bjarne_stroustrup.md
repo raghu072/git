@@ -1,1 +1,2 @@
-Just some programming quotes on how to solve git conflict
+Just some programming quotes on how to solve git conflict contribut2
+
