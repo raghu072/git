@@ -6,3 +6,6 @@
 
 
 alan kay quotes enter here
+alan kay quotes enter here 1
+alan kay quotes enter here 2
+alan kay quotes enter here 3
